@@ -1,1 +1,1 @@
-# StrongestDogeWiki
+# StrongestDogeSwagVid
